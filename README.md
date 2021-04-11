@@ -46,7 +46,7 @@ Aim to get as much of this used as you possibly can. If you have friends and fam
 - onesies, lots of onesies, there are a few different styles you will need. Seriously babies live in onesies. 
   - the long-sleeve kind with built-in foldover mittens at the end of the arms
   - feetie onesies with the zipper (snaps are a pain in the butt)
-  - my faves for sleep were the gown-style onesies so you can just pull it up to change a diaper and not deal with snaps or zippers or taking legs out in the middle of the night and half asleep.
+  - **gown-style onesies** are KEY. They have an open bottom, so you can just pull it up to change a diaper and not deal with snaps or zippers or taking legs out in the middle of the night and half asleep. https://www.gerberchildrenswear.com/products/4-pack-baby-neutral-sheep-gowns-1284
 - mittens to cover their hands for the first few weeks (their fingernails are SHARP and they cut themselves the dummies)
 - socks and hats. You do not need shoes ever and they are a pain to get on and off so don't bother
 - spit-up cloths. There are fancy ones or we just used cheap cloth diapers
