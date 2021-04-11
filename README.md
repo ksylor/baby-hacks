@@ -68,7 +68,7 @@ Aim to get as much of this used as you possibly can. If you have friends and fam
 ### Stuff for mom
 - CROSSOVER STYLE nursing and sleep bras  https://www.medela.com/breastfeeding/products/maternity-and-nursing-wear/nursing-sleep-bra (you will need to wear bras to sleep because you will leak and need a bra to hold pads) I HATED the snap kinds of bras because it was so awkward to undo while holding the kid
 - Henley/crossover style sleeping tops so you can pull your boob out and roll over and nurse without snaps and stuff
-- nipple cream. Your nipples will be raw and cracked so you need a good ointment that the baby can safely ingest
+- nipple ointment. Your nipples will be raw and cracked so you need a good ointment that the baby can safely ingest
 - boob pads for soaking up the leakage. You will leak a little bit kind of all the time 
 - a pumping bra that will let you pump hands-free. The kind that zips in front is easiest to get on IME https://www.medela.us/breastfeeding/products/nursing-apparel/easy-expression-bustier
 - a cute and fun diaper bag that has clips to attach to the handles of a stroller
