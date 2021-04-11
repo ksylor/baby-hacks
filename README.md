@@ -1,4 +1,4 @@
-# baby-hacks
+# Katie's advice for parents to be
 Stuff that I learned while having two babies. As with everything, this was my experience and YMMV.
 
 ## My overall baby advice can be summed up as follows:
