@@ -87,6 +87,7 @@ Aim to get as much of this used as you possibly can. If you have friends and fam
 - heated wipe warmers
 - motorized diaper pails
 - bottle warmers
+- baby bathtubs, inflatable duck tub things, baby bath resters, just get the sponge thing I listed above.
 
 ## More on sleep
 I know I sound like a broken record here, but it is so so so so so important to get the baby sleeping well from the start. The first few weeks when you are home from the hospital, they sleep pretty well, but then after ~2 weeks or so it suddenly gets harder and harder to get them to sleep. We were all super miserable for the first two months until a friend gave me the 90 Minute Sleep Solution book, and that book saved our sanity. I give it to every new parent to read, and almost everyone tells me that it's magic. 
