@@ -50,7 +50,7 @@ Aim to get as much of this used as you possibly can. If you have friends and fam
 - mittens to cover their hands for the first few weeks (their fingernails are SHARP and they cut themselves the dummies)
 - socks and hats. You do not need shoes ever and they are a pain to get on and off so don't bother
 - spit-up cloths. There are fancy ones or we just used cheap cloth diapers
-- a mirror that hangs on the back seat so you can see them more easily 
+- a mirror that hangs on the back seat of the car so you can see them more easily 
 - a warm sleeping bag style car seat cover for winter, you aren't supposed to strap them in wearing a jacket or snowsuit. I liked the jj cole ones https://www.amazon.com/JJ-Cole-Weather-Resistant-Herringbone/dp/B00P1BDGEU
 - a bath sponge like this https://www.amazon.com/Summer-Infant-Comfy-Bath-Sponge/dp/B000H953Y2  baby bathtubs are a scam, they are awkward af and your kid ends up afraid of the big tub when you try to transition them. Use the sponge on a counter when they are brand new, then lay them on it in the big tub with an inch of water 
 - a plastic bowl or cup to pour water on them in the tub
