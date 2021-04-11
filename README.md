@@ -44,9 +44,9 @@ Aim to get as much of this used as you possibly can. If you have friends and fam
 
 ### Clothing & Accessories
 - onesies, lots of onesies, there are a few different styles you will need. Seriously babies live in onesies. 
--- the long-sleeve kind with built-in foldover mittens at the end of the arms
--- feetie onesies with the zipper (snaps are a pain in the butt)
--- my faves for sleep were the gown-style onesies so you can just pull it up to change a diaper and not deal with snaps or zippers or taking legs out in the middle of the night and half asleep.
+  - the long-sleeve kind with built-in foldover mittens at the end of the arms
+  - feetie onesies with the zipper (snaps are a pain in the butt)
+  - my faves for sleep were the gown-style onesies so you can just pull it up to change a diaper and not deal with snaps or zippers or taking legs out in the middle of the night and half asleep.
 - mittens to cover their hands for the first few weeks (their fingernails are SHARP and they cut themselves the dummies)
 - socks and hats. You do not need shoes ever and they are a pain to get on and off so don't bother
 - spit-up cloths. There are fancy ones or we just used cheap cloth diapers
@@ -73,10 +73,10 @@ Aim to get as much of this used as you possibly can. If you have friends and fam
 - a pumping bra that will let you pump hands-free. The kind that zips in front is easiest to get on IME https://www.medela.us/breastfeeding/products/nursing-apparel/easy-expression-bustier
 - a cute and fun diaper bag that has clips to attach to the handles of a stroller
 - get a good baby tracker app. The most important features are:
--- nursing timer that also tracks which boob you used because you will be so sleep deprived you will forget.
--- tracker for sleeping, poop, and pee (the doctor will ask you about it in the first few months) 
--- timer that you can set to 90 minutes for the 90 minute sleep program
--- If it connects to a smart watch that would probably be amazing, they didn't really exist when my kids were newborns and I would have loved to be able to track nursing on my phone if I could have!
+  - nursing timer that also tracks which boob you used because you will be so sleep deprived you will forget.
+  - tracker for sleeping, poop, and pee (the doctor will ask you about it in the first few months) 
+  - timer that you can set to 90 minutes for the 90 minute sleep program
+  - If it connects to a smart watch that would probably be amazing, they didn't really exist when my kids were newborns and I would have loved to be able to track nursing on my phone if I could have!
 
 ## Stuff you don't need
 - motorized swings and stuff They take up a ton of space, have a very limited timespan, and didn't work well for calming my kids, but ymmv.
