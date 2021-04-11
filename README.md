@@ -34,7 +34,7 @@ Get as many things used as you possibly can. Hopefully you have friends and fami
 
 ### VERY IMPORTANT SLEEP RELATED THINGS
 - a marpac dohm (or I guess they rebranded to "yogasleep") white noise machine https://yogasleep.com/products/dohmclassic they are 100% mechanical and last forever. I recently opened one that wasn't working and removed all the dust and squirted WD40 and it works great again! Seriously this is the best!
-- the 90 Minute Sleep Solution book. This book is magic and will save your sanity (more on this later)
+- the 90 Minute Sleep Solution book (or the newer version "natural sleep solution") https://www.amazon.com/Natural-Baby-Sleep-Solution-Internal/dp/0761187472 This book is magic and will save your sanity (more on this later)
 - the happiest baby on the block (this is the snoo people)
 - a few swaddle wraps - I liked the muslin ones. We swaddled the shit out of our kids
 - Halo sleep sacks (a few of each size)  https://www.halosleep.com/shop/sleepsack-swaddle (note these might not be necessary with the snoo? I'm not sure)
