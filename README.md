@@ -98,7 +98,8 @@ Swaddling and white noise and the 90-minute solution combined will save your san
 
 ## Pro Tips
 - sleep now while you can.
+- If you have a vaginal birth, when you get home from the hospital soak maxi pads in witch hazel and put them in the freezer, then use them when the pain gets really bad (especially if you need an episiotomy). If the hemohorroids don't clear up quickly, the doctor can prescribe 2.5% hydrocortisone cream which helps bring the swelling down.
 - make the crib up with 2-3 layers of mattress cover + sheet so you don't have to remake the crib in the middle of the night from a blowout or leak.
-- keep a shirt that you have slept in around for your partner to drape over their shoulder when feeding/calming/putting the baby to sleep. We called it the mama shirt, and it helped a ton for Kento to calm the kids because they could smell mama's pheromones.
+- keep a shirt that mom has slept in around for your partner to drape over their shoulder when feeding/calming/putting the baby to sleep. We called it the "mama shirt", and it helped a ton for my husband, parents, babysitters, etc. to calm the kids because they could smell mama's pheromones.
 - Turn down the water temp housewide by adjusting your water heater. That way you don't have to worry about testing the bathwater so you don't burn the baby. This article recommends `Set the thermostat on your hot water heater to below 120 F (48.9 C). Aim for bath water around 100 F (38 C)` https://www.mayoclinic.org/healthy-lifestyle/infant-and-toddler-health/in-depth/child-safety/art-20044027
 - babies are not as fragile as they look! You don't need to stress, and you don't need a ton of crap to keep them alive and loved. 
