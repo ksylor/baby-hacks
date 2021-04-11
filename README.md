@@ -56,8 +56,8 @@ Aim to get as much of this used as you possibly can. If you have friends and fam
 - a plastic bowl or cup to pour water on them in the tub
 - a butt thermometer
 - baby nail clippers
-- a soft bristle hair brush
-- bottles, get two sizes iirc 4oz and 8oz are typical
+- a soft bristle hair brush, my kids didn't even have hair, but we needed one to help with cradle cap.
+- bottles, get two sizes (iirc 4oz and 8oz are typical) if you are starting daycare you will need a lot.
 - 2-3 pacifier clips (if you do pacifiers which my kids loved) so you don't have to dig around for it if it falls out of their mouths
 - toys that are colorful and different textures & sounds and hang from car seat straps and stuff. 
 - a metric fuckton of diapers
@@ -86,6 +86,7 @@ Aim to get as much of this used as you possibly can. If you have friends and fam
 - expensive shit. Seriously the expensive stuff is almost never worth it, especially the high-end toys and high chairs and strollers.
 - heated wipe warmers
 - motorized diaper pails
+- bottle warmers
 
 ## More on sleep
 I know I sound like a broken record here, but it is so so so so so important to get the baby sleeping well from the start. The first few weeks when you are home from the hospital, they sleep pretty well, but then after ~2 weeks or so it suddenly gets harder and harder to get them to sleep. We were all super miserable for the first two months until a friend gave me the 90 Minute Sleep Solution book, and that book saved our sanity. I give it to every new parent to read, and almost everyone tells me that it's magic. 
