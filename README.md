@@ -1,5 +1,5 @@
 # Katie's advice for parents to be
-Stuff that I learned while having two babies. As with everything, this was my experience and YMMV.
+Stuff that I learned while having two babies. As with everything, this was my experience and YMMV, especially some things that are car & house specific, I have no idea how to manage a baby in a small apartment in the city lol.
 
 ## My overall baby advice can be summed up as follows:
 
